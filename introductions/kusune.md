@@ -1,1 +1,1 @@
-t.kusune@east.ntt.co.jp
+- t.kusune@gmail.com
